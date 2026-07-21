@@ -82,6 +82,6 @@ Ser referência em engenharia de software e estratégia digital, reconhecida pel
 
 <br><br>
 
-**Ignis Code Solutions** · Technology & Strategy
+**Ignis Code Solutions** · Tecnologia & Estratégia
 
 </div>
